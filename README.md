@@ -85,7 +85,7 @@ The prototype was hand-built using aluminium composite panels, with all electron
 
 <div align="center">
 
-https://github.com/user-attachments/assets/3B9_Universal_Design_Innovation_Project_-_Group_6_-_2025_720p.mp4
+[https://github.com/user-attachments/assets/3B9_Universal_Design_Innovation_Project_-_Group_6_-_2025_720p.mp4](https://github.com/user-attachments/assets/2c613722-c9e9-4b7a-9ff3-53e2d1834b81)
 
 </div>
 
